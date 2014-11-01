@@ -1,1 +1,1 @@
-Somthin
+Something
